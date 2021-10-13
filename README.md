@@ -1,3 +1,3 @@
-Explore o conteúdo da Alura
+Mergulhe em Tecnologia!
 
-Conheça nossas formações, uma sequência de cursos e conteúdo para você se tornar o profissional que o mercado procura
+Você vai estudar, praticar, discutir e se aprofundar em uma plataforma que respira tecnologia.
